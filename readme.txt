@@ -1,0 +1,1 @@
+Git is like shit
